@@ -1,5 +1,6 @@
 
 ## Proyecto individual 3 de Julieta Ciare. 
+![imagen](https://www.cilans.net/wp-content/uploads/2021/05/download-2.jpg)
 
 # Introducción.
 
